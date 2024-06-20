@@ -1,1 +1,0 @@
-# provadojuliaoqts_Yudi
